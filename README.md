@@ -1,0 +1,1 @@
+# Recupera-o-e-remo-o-completa-do-ViPER4Android-RE-no-KernelSU
